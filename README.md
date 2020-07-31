@@ -1,4 +1,11 @@
 ### Hi there 👋
+## FOOTBALL , FINANCE and DEVELOPMENT. :heart:
+
+Working on Web-technologies.
+
+Reach me at shree1608@gmail.com. :thumbsup:
+
+
 
 <!--
 **Shree2000/Shree2000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
