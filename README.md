@@ -1,9 +1,9 @@
 ### Hi there 👋
-## FOOTBALL , FINANCE and DEVELOPMENT. :heart:
+## FOOTBALL,FINANCE and TECHNOLOGY. :heart:
 
 Working on Web-technologies.
 
-Reach me at shree1608@gmail.com. :thumbsup:
+Connect with me at shree1608@gmail.com. :thumbsup:
 
 
 
